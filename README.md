@@ -1,2 +1,2 @@
 # Andravitar.github.io
-My professional portfolio
+Andrei Erhan Chirilov: Professional Portfolio
